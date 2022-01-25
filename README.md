@@ -16,8 +16,8 @@ Video : https://www.youtube.com/playlist?list=PL7ASMo3rA5ag2jNrqsgvA766Ec_r2Wg-G
 
 Youtube : https://www.youtube.com/channel/UCw82oW__6Fnw4NIdWzpKjkA
 
-Blogger : https://shadowtechnician.blogspot.com
+Blogger : https://optcoder.com
 
-Gmail : shadowtechnician@gmail.com
+Gmail : info@optcoder.com
 
 **********************************************************************************************************
